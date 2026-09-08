@@ -1,2 +1,2 @@
 # Portfolio
-debashis nandy.github.portfolio
+Debashis Nandy.github.portfolio
