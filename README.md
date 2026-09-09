@@ -14,7 +14,7 @@ I create intuitive digital experiences, design systems, and visual brand identit
 ### 🎨 About My Background
 - 🛠 **Specialties:** 3D Jewelry CAD/CAM, Matrix 9.0, Goldsmithing & Bench Jewelry, Wax Carving & Model Making 1 .
 - 🧰 **Software & Tools:** Matrix 9.0, Rhino 3D, CAM Machine Operation & Print-Ready File Preparation.
-- 💼 **Experience:** 20+ years in fine jewelry manufacturing, custom goldsmithing, and CAD designing across India, Qatar, Egypt, and Iran.
+- 💼 **Experience:** 20+ years in fine jewelry manufacturing, custom goldsmithing, and CAD design across India, Qatar, Egypt, and Iran.
 - 🔭 **Currently Working On:** Senior CAD Designer at Jewelbox, developing high-precision 3D models for manufacturing.
 ### 🌐 Connect & Portfolio
 - 💼 [LinkedIn](https://linkedin.com/in/debashis-nandy-39a7b787/)
