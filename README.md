@@ -17,6 +17,6 @@ I create intuitive digital experiences, design systems, and visual brand identit
 - 💼 **Experience:** 20+ years in fine jewelry manufacturing, custom goldsmithing, and CAD designing across India, Qatar, Egypt, and Iran.
 - 🔭 **Currently Working On:** Senior CAD Designer at Jewelbox, developing high-precision 3D models for manufacturing.
 ### 🌐 Connect & Portfolio
-- 💼 [LinkedIn](linkedin.com/in/debashis-nandy-39a7b787)
+- 💼 [LinkedIn](https://linkedin.com/in/debashis-nandy-39a7b787/)
 - 🖼 [Behance / Dribbble](https://dribbble.com/yourprofile)
 - ✉️ [Email Me]dnandy031@gmail.com
