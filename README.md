@@ -19,4 +19,4 @@ I create intuitive digital experiences, design systems, and visual brand identit
 ### 🌐 Connect & Portfolio
 - 💼 [LinkedIn](https://linkedin.com/in/debashis-nandy-39a7b787/)
 - 🖼 [Behance / Dribbble](https://dribbble.com/yourprofile)
-- ✉️ [Email Me]dnandy031@gmail.com
+- ✉️ Email dnandy031@gmail.com
