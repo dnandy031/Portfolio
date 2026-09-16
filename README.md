@@ -1,7 +1,7 @@
 # Portfolio
 Debashis Nandy
 <img width="1280" height="920" alt="tw555" src="https://github.com/user-attachments/assets/e0e2e42f-de00-4ac5-aeb5-4e142979837e" />
- (path-to-your-uploaded-image.png)
+ 
 # Hi, I'm Debashis Nandy
 ## Senior Jewelry CAD/CAM Designer & Master Bench Jeweler
 
